@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on open-source projects that make a positive impact.
 
-📫 How to reach me: Feel free to connect on LinkedIn or drop me an email at [your.email@example.com].
+📫 How to reach me: Feel free to connect on LinkedIn or drop me an email at [dev.nagesh30@gmail.com].
 
 😄 Pronouns: He
 
